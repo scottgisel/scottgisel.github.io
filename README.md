@@ -1,1 +1,0 @@
-# scottgisel.github.io
